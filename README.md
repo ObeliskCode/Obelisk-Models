@@ -1,1 +1,1 @@
-I do not own these models or claim to own them, use at your own discretion. For testing Only!
+I do not own these models nor claim to own them, use at your own discretion.
